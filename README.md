@@ -1,2 +1,4 @@
 # auction-2
-new updates
+new update
+iam on the way
+going to home
