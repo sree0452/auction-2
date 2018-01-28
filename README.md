@@ -1,2 +1,2 @@
 # auction-2
-new updqtes
+new updates
